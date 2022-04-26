@@ -26,5 +26,8 @@ h) Magbo Charles (SH-IT-0007443)
 
 i) Tolutope Amole (SH-IT-0011046)
 
+j) Ayodele torimiro (SH-IT-0089113)
+
+
 Description:
 Each member of Group 36 attempted the whole project in order to understand the concepts. After submitting their individual projects to the team lead, The group took a look at each individual project and chosse one to focus on and tried to perfect it.  
